@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Communities and Social Impact Projects
 - 📫 How to reach me xcaboclean@gmail.com
 - 😄 Pronouns: They Theirs
-- ⚡ Fun fact: I love cats! 🐈
+- ⚡ Fun fact: I'am a cat! 🐈
 
 <!---
 xcaboclean/xcaboclean is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
